@@ -1,1 +1,1 @@
-# rsschool-cv
+https://avazingg.github.io/rsschool-cv/cv
